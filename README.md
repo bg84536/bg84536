@@ -1,8 +1,6 @@
 Whats up I'm Obg
 
-I love Unity and coding and right now I am working on many Unity projects
 
-PIXEL ART <3
 
 
 You can't reach me! ;) 
